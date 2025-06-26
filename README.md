@@ -88,7 +88,7 @@ Author
 ------
 
 Dhanushu V  
-Email: dhanushu@gmail.com
+Email: dhanushu77@gmail.com
 
 License
 -------
